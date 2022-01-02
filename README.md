@@ -4,7 +4,7 @@
 - 👯 University student.
 - 🤔 Proud of being a Chinese.
 - 💬 Want to learn as many skills as I can.
-- 📫 How to reach me: I guess you can reach me.
+- 📫 How to reach me: Guess!
 
 
 For more, please visit my personal blog:  
