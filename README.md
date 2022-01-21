@@ -2,9 +2,8 @@
 - 🔭 A novice who learns web security.
 - 🌱 Familiar with penetration testing.
 - 👯 University student.
-- 🤔 Proud of being a Chinese.
 - 💬 Want to learn as many skills as I can.
-- 📫 How to reach me: Guess!
+- 📫 How to reach me: Wechat->xzajyjs; E-mail->xuziang16@gmail.com
 
 
 For more, please visit my personal blog:  
