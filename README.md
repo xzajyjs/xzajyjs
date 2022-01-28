@@ -4,7 +4,7 @@
 - 👯 University student.
 - 💬 Want to learn as many skills as I can.
 - 📫 My E-mail: xuziang16@gmail.com
-- 🛫 My Telegram: [t.me/zhzyker](t.me/zhzyker)
+- 🛫 My Telegram: [t.me/theAntiker](t.me/theAntiker)
 - 💗 My WeChat: xzajyjs
 
 
