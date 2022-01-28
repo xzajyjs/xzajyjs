@@ -3,7 +3,9 @@
 - 🌱 Familiar with penetration testing.
 - 👯 University student.
 - 💬 Want to learn as many skills as I can.
-- 📫 How to reach me: Wechat->xzajyjs; E-mail->xuziang16@gmail.com
+- 📫 My E-mail: xuziang16@gmail.com
+- 🛫 My Telegram: [t.me/zhzyker](t.me/zhzyker)
+- 💗 My WeChat: xzajyjs
 
 
 For more, please visit my personal blog:  
