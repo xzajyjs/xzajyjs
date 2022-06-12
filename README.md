@@ -1,7 +1,6 @@
 ### Hi there 👋  
 - 🔭 A novice who learns web security.
 - 🌱 Familiar with penetration testing.
-- 👯 University student.
 - 💬 Want to learn as many skills as I can.
 - 📫 My E-mail: xuziang16@gmail.com
 - 🛫 My Telegram: [t.me/theAntiker](t.me/theAntiker)
